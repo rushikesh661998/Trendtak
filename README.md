@@ -1,4 +1,4 @@
-# Trendtak PRIVACY POLICY
+# TRENDTAK PRIVACY POLICY
 TrendTak - Made in India | video call, chat short video app
 
 Last updated December 15, 2020
